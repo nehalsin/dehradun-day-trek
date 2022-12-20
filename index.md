@@ -25,13 +25,13 @@ Supply Depot - Gajiyawala - Gangol Panditwari - Gadduwala - Chaura Gaon - Bisht 
 
 
 ## MAJOR TIMINGS
-8:45 AM Started from home at Indirapuram behind Hotel Saffron Leaf on GMS Road.
+**8:45 AM** Started from home at Indirapuram behind Hotel Saffron Leaf on GMS Road.
 
-9 AM Reached Ballupur by E-rikshaw. ₹20 for two.
+**9 AM** Reached Ballupur by E-rikshaw. ₹20 for two.
 
-9:23 AM reached Supply Depot by Magic from Ballupur. ₹40 for two.
+**9:23 AM** reached Supply Depot by Magic from Ballupur. ₹40 for two.
 
-9:41 AM Crossed Gajiyawala bridge.
+**9:41 AM** Crossed Gajiyawala bridge.
 
 Intermediate detailed timings can be seen in time stamps on pics.
 
@@ -69,7 +69,7 @@ Intermediate detailed timings can be seen in time stamps on pics.
 
 ![IMG_20221217_171011](IMG_20221217_171011.jpg)
 
-7:45 PM Reached home.
+**7:45 PM** Reached home.
 
 
 ## TOTAL EXPENDITURE
